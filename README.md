@@ -1,6 +1,6 @@
 ![alt tag](https://scontent-b.xx.fbcdn.net/hphotos-prn2/t1.0-9/10338739_10152196407958087_6429379408254650202_n.jpg)
 
->a way for local artists feature an exclusive piece of art only accessable from a Dead Drop, these will be scattered around Louisville in all kinds of places for anyone to find and enjoy!
+>a way for local artists feature an exclusive piece of art only accessible from a Dead Drop, these will be scattered around Louisville in all kinds of places for anyone to find and enjoy!
 
 ![alt tag](http://deaddrops.com/wp-content/uploads/2010/11/deaddrops1-600x400.jpg)
 
@@ -19,16 +19,16 @@ Local artists feature where each artist (music, visual, game, food, writing, any
 To promote awesome local artists, and show the creativity here in our diverse city.
 
 ###Where
-Locations that promote unique & interesting places in Louiville that people may have never been.
-ex. or a beautiful view, interesting piece of archetecture, or near a great local restraunt.
+Locations that promote unique & interesting places in Louisville that people may have never been.
+For example, places with a beautiful view, interesting piece of architecture, or near a great local restraunt.
 
 ###When
-Coming soon, contact us to get involved and get help with any part of the process,  or submit your dead drop location to twoscoopgames@gmail.com
+Coming soon, contact us to get involved and get help with any part of the process,or submit your dead drop location to twoscoopgames@gmail.com
 
 
 ###Rules:
 The only rules are:
-- Exclusive art! nobody can have a way to see/hear/experience the piece other than the usb drive
+- Exclusive art! nobody can have a way to see/hear/experience the piece other than the USB drive
 - Louisville themed (if possible)
 
 >Every type of art, any type of artist, Louisville show what you can do!
