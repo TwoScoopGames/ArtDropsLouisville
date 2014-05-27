@@ -30,15 +30,15 @@ The only rules are:
 
 ###Ideas:
 
-*Spoken word track
-*Photography
-*Photo of a painting
-*Sewing or embrodry pattern
-*Digital art piece
-*Game or interactive experience
-*Music recording
-*Poetry
-*Recipie
-*Joke or Louiville themed meme
-*Story or article
-*Anyhting you can think of, Louisville is home to some of the most creative individuals!
+* Spoken word track
+* Photography
+* Photo of a painting
+* Sewing or embrodry pattern
+* Digital art piece
+* Game or interactive experience
+* Music recording
+* Poetry
+* Recipie
+* Joke or Louiville themed meme
+* Story or article
+* Anyhting you can think of, Louisville is home to some of the most creative individuals!
