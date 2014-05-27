@@ -1,8 +1,5 @@
 ![alt tag](https://scontent-b.xx.fbcdn.net/hphotos-prn2/t1.0-9/10338739_10152196407958087_6429379408254650202_n.jpg)
 
-Art Drops Louisville 
-==================
-
 >a way for local artists feature an exclusive piece of art only accessable from a Dead Drop, these will be scattered around Louisville in all kinds of places for anyone to find and enjoy!
 
 ![alt tag](http://deaddrops.com/wp-content/uploads/2010/11/deaddrops1-600x400.jpg)
