@@ -23,7 +23,7 @@ The only rules are:
 - Exclusive art! nobody can have a way to see/hear/experience the piece other than the usb drive
 - Louisville themed (if possible)
 
->Every type of art
+>Every type of art, any type or artist, Louisville show what you can do!
 
 ###Ideas:
 
