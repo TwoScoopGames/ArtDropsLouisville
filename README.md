@@ -1,7 +1,7 @@
 Louisville Art Drops
 ==================
 
->a way for local artists feature an exclusive piece of art only accessable from a Dead Drop.
+>a way for local artists feature an exclusive piece of art only accessable from a Dead Drop, these will be scattered around Louisville in all kinds of places for anyone to find and enjoy!
 
 ![alt tag](http://deaddrops.com/wp-content/uploads/2010/11/deaddrops1-600x400.jpg)
 
