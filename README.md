@@ -24,6 +24,7 @@ The only rules are:
 - Louisville themed (if possible)
 
 >Every type of art
+
 ###Ideas:
 
 *Spoken word track
