@@ -1,4 +1,4 @@
-DeadDropLouisville
+Louisville Art Drops
 ==================
 
 >a way for local artists feature an exclusive piece of art only accessable from a drap drop.
