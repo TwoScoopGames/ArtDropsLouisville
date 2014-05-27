@@ -5,7 +5,9 @@ Art Drops Louisville
 
 ![alt tag](http://deaddrops.com/wp-content/uploads/2010/11/deaddrops1-600x400.jpg)
 
-Dead drop: an anonymous, offline, peer to peer file-sharing network in public space. USB flash drives are embedded into walls, buildings and curbs accessible to anybody in public space. 
+### What is a Dead drop?
+
+Dead Drops are an anonymous, offline, peer to peer file-sharing network in public space. USB flash drives are embedded into walls, buildings and curbs accessible to anybody in public space. 
 
 For more info on Deap Drops, and the origin story: http://deaddrops.com/
 
