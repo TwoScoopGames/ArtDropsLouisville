@@ -1,4 +1,4 @@
-Louisville Art Drops
+Art Drops Louisville 
 ==================
 
 >a way for local artists feature an exclusive piece of art only accessable from a Dead Drop, these will be scattered around Louisville in all kinds of places for anyone to find and enjoy!
