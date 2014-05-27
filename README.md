@@ -13,7 +13,8 @@ For more info on Deap Drops, and the origin story: http://deaddrops.com/
 ##You don't need any technical knowledge to participate, just create your piece and we will set up the drive and place it for you if needed!
 
 ###What
-Local artists feature where each artist (music, visual, game, food, writing, anything!) places an exclusive piece and description on a Dead Drop flash drive and gives out the location online, or coordinates with another artist to put their location info on another drive, and puts it in a public space for anyone to find and enjoy.
+Art Drop Louisville is an experiment that will feature Local artists of all types (music, visual, game, food, writing, anything!) 
+Each Artist will provide an exclusive piece and description  on a flash drive and  we will put it out somewhere in the public space for anyone to find and enjoy.
 
 ###Why
 To promote awesome local artists, and show the creativity here in our diverse city.
