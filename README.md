@@ -10,7 +10,7 @@ Dead Drops are an anonymous, offline, peer to peer file-sharing network in publi
 
 For more info on Deap Drops, and the origin story: http://deaddrops.com/
 
-##You don't need any technical knowledge to participate, just create your peice and we will setup the drive and place it for you if needed!
+##You don't need any technical knowledge to participate, just create your piece and we will set up the drive and place it for you if needed!
 
 ###What
 Local artists feature where each artist (music, visual, game, food, writing, anything!) places an exclusive piece and description on a Dead Drop flash drive and gives out the location online, or coordinates with another artist to put their location info on another drive, and puts it in a public space for anyone to find and enjoy.
