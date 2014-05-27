@@ -45,7 +45,7 @@ The only rules are:
 * Music recording
 * Poetry
 * Recipe
-* Joke or Louiville themed meme
+* Joke or Louisville themed meme
 * Story or article
 * Anything you can think of, Louisville is home to some of the most creative individuals!
 
